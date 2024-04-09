@@ -8,3 +8,5 @@
  3ª Verdade: A catastrofe é eminente.
 
  4ª Verdade: Somente os bem informados passarão ilesos.
+
+ 5ª Verdade: Sua religião é o ponto chave.
