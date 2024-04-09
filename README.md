@@ -5,5 +5,5 @@
  
  2ª Verdade: Os ricos gostam de guerra.
 
-
+ 3ª Verdade: A catastrofe é eminente.
 
