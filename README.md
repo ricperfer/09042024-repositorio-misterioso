@@ -10,3 +10,5 @@
  4ª Verdade: Somente os bem informados passarão ilesos.
 
  5ª Verdade: Sua religião é o ponto chave.
+
+ 6ª Verdade: Os ricos sem fé também serão punidos.
