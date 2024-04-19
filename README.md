@@ -15,4 +15,4 @@
 
  7ª Verdade: Os três dias de trevas.
  
- 8ª Verdade: Entreguem seus passaportes.
+ 8ª Verdade: Fica mais calmo depois de 2029.
